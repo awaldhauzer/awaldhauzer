@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Antek
-- 👀 I’m interested in Korean culture
-- 🌱 I’m currently learning html and korean language
+
