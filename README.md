@@ -7,7 +7,7 @@ I'm interested in **Korean culture**, **music**, **photography** and **programmi
 ---
 
 ### 🔗 Connect with me
-* 🌐 **Check my work on my site:** [awaldhauzer.github.io](https://awaldhauzer.github.io)
+* 🌐 **Check my work Linktree:** [linktr.ee/awaldhauzer](https://linktr.ee/awaldhauzer)
 * 📧 **Email:** [awaldhauzer@gmail.com](mailto:awaldhauzer@gmail.com)
 * 💬 **WhatsApp:** [Message me!](https://wa.me/48880642034)
 
